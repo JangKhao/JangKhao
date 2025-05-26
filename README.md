@@ -17,6 +17,7 @@
 - Facebook: [warriors.rain](https://www.facebook.com/warriors.rain)
 - Email 1: laqeta06@gmail.com
 - Email 2: haodang17062002@gmail.com
+- Số điện thoại : 0902572932
 
 ## 💬 Một chút về mình
 - Luôn sẵn sàng học hỏi & hợp tác cùng mọi người
