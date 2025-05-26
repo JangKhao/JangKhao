@@ -3,6 +3,7 @@
 ## 🧑‍💻 Giới thiệu
 - 🎓 Sinh viên ngành Công nghệ Thông tin (IT/CNTT)
 - 💡 Đam mê lập trình, thích khám phá công nghệ mới
+- 🔥 Thuần học tin học văn phòng cơ bản
 - 🔥 Kỹ năng chính: **C#** & **HTML**
 
 ## 🌱 Hiện tại mình đang:
